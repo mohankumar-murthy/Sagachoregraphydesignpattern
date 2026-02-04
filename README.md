@@ -1,0 +1,3 @@
+"# Sagachoregraphydesignpattern" 
+"# Sagachoregraphydesignpattern" 
+"# Sagachoregraphydesignpattern" 
